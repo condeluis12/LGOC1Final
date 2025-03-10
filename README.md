@@ -1,1 +1,1 @@
-Luis Alejnadro Gomez Cardenas
+Luis Alejandro Gomez Cardenas
