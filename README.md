@@ -1,1 +1,1 @@
-# LGOC1Final
+Luis Alejnadro Gomez Cardenas
